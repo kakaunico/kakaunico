@@ -1,4 +1,5 @@
 ## oii gays 💟
 odeio o alura
 dias chuvosos sao os piores 
-![](https://tenor.com/pt-BR/view/tasha-okereke-e-kyan-gif-4898890102857674654)
+![](https://media.tenor.com/Q_xal9aCL54AAAAM/tasha-okereke-e-kyan.gif) 
+![](https://tenor.com/pt-BR/view/anavitoria-ana-clara-caetano-vitoria-falcao-ana-caetano-barefoot-gif-7884313)
