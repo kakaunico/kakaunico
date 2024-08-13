@@ -2,5 +2,4 @@
 odeio o alura
 dias chuvosos sao os piores 
 
-
-![](https://media1.tenor.com/m/Q_xal9aCL54AAAAd/tasha-okereke-e-kyan.gif)
+![](https://tenor.com/pt-BR/view/tasha-okereke-e-kyan-gif-4898890102857674654)
